@@ -1,6 +1,6 @@
 尤克里里来自夏威夷，形状酷似小吉他，是最容易上手和声乐器。
 
-![image](C:\Users\陈迪迪\Desktop\尤克里里的照片 - Bing images_files\01b18e55b4c8ef32f875251f82678c.jpg@1280w_1l_2o_100sh.jpg)
+![image](https://cn.bing.com/images/search?q=%E5%B0%A4%E5%85%8B%E9%87%8C%E9%87%8C%E5%9B%BE%E7%89%87&FORM=IQFRBA&id=CD474EA2FFA39FA8075E0352EEA1DCDEEF50B821)
 
 
 
