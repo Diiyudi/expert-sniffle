@@ -1,10 +1,9 @@
 尤克里里来自夏威夷，形状酷似小吉他，是最容易上手和声乐器。
 
-![image](https://cn.bing.com/images/searchq=%E5%B0%A4%E5%85%8B%E9%87%8C%E9%87%8C%E5%9B%BE%E7%89%87&FORM=IQFRBA&id=CD474EA2FFA39FA8075E0352EEA1DCDEEF50B821)raw.githubusercontent.com has address 185.199.110.133
+![image](https://cn.bing.com/images/searchq=%E5%B0%A4%E5%85%8B%E9%87%8C%E9%87%8C%E5%9B%BE%E7%89%87&FORM=IQFRBA&id=CD474EA2FFA39FA8075E0352EEA1DCDEEF50B821raw.githubusercontent.com has address 185.199.110.133
 raw.githubusercontent.com has address 185.199.111.133
 raw.githubusercontent.com has address 185.199.108.133
-raw.githubusercontent.com has address 185.199.109.133
-
+raw.githubusercontent.com has address 185.199.109.133)
 
 
 虽然只有四根尼龙弦，但唱歌伴奏、指弹独奏样样都能玩，因为它的小巧便携和多样的玩法，在世界各地很多地方流行，在国内的热度也越来越高。
